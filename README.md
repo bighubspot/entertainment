@@ -1,3 +1,6 @@
+<h1>Gladiator II (2024)free movie download </h1>
+
+
 Gladiator II (2024): A New Chapter in Ancient Rome
 Ridley Scott’s Gladiator II, a long-awaited sequel to the 2000 Oscar-winning epic, is set to hit theaters on November 22, 2024. This film explores the aftermath of Gladiator through the perspective of Lucius, the nephew of Commodus, played by Paul Mescal. The story follows Lucius’s journey of vengeance and honor as he confronts a corrupt Roman Empire​
 
